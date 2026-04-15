@@ -1,1 +1,1 @@
-I just declare that consciousness is "an illusion" and that it doesn't really matter and actually there is no hard problem to solve in the first place. Then I act smug and self-satisfied and make fun of people for taking the question seriously and aknowledging that it's actually really bizzare that conscious experience exists and we have no explanation for it. I am very smart!
+Consciousness is just turtles all the way down.
